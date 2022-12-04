@@ -1,2 +1,2 @@
 # mobile
-new
+new mobile was brought in the year 2007 nd it was samsung....
